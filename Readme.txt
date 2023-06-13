@@ -1,0 +1,1 @@
+J'ai inséré le répertoire qui contient les sons et images au cas où il y aurait un problème.
